@@ -1,0 +1,1 @@
+![Capture d'écran 2025-11-15 215913.png](banque-service%2FCapture%20d%27%C3%A9cran%202025-11-15%20215913.png)
